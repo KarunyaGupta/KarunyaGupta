@@ -10,7 +10,7 @@
 
 📫 You can find more about my work and projects on my personal website: https://karunyagupta.netlify.app/
 
-😄 Pronouns: He/His
+😄 Pronouns: he/him
 
 ⚡ Fun fact: I love listening music in my free time, which helps me to stay active and vibing all time!
 
